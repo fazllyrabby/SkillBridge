@@ -74,7 +74,7 @@ http://localhost/skillbridge
 
 ## 📞 Contact
 
-Your Name — [your.email@example.com](mailto:your.email@example.com)
+Your Name — [your.email@example.com](mailto:fazleyrabbyr76@.com)
 
 ---
 
